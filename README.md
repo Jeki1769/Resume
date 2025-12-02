@@ -1,0 +1,3 @@
+My name is Jeremy Kiarie, and I am a junior in the Electrical Engineering Department at the University of Colorado Boulder, where I am also pursuing a minor in economics. I was born in Nairobi, Kenya where I spent the majority of my life before coming to the US for further education. 
+
+I have always been inquisitive in that I have always valued trying new things, expanding my mind, and honing my mental acuity. I imagine this led to my inclination toward the sciences, particularly physics. I was engaged by the everyday applications of what I was learning in all aspects of my life and getting a better understanding of the “magic” behind machines and appliances.
